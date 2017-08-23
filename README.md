@@ -14,7 +14,7 @@ Honey ||||
 Hush ||Joe South|| 
 Lady Willpower ||||
 Look to your Soul ||||
-Paper Cup ||||
+Paper Cup |The 5th Dimension|||
 Slick ||||
 Stone Soul Picnic |||| 
 Turn Around, Look at Me ||||
